@@ -1,0 +1,1 @@
+Add a list of things and the things you can say to them maybe chatGPT and it is alrigth because this will just act like a cheatsheet for you :>!
